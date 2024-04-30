@@ -1,4 +1,4 @@
-# Pre-Doctoral Research Associate
+# Lakshimi Swaminathan
 ### Education
 MA, Economics (Yale University)
 
